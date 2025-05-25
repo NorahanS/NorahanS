@@ -10,6 +10,5 @@
 - 💬 Ask me about ...
 -->
 - 📫 How to reach me: budenbrookhana@gmail.com
-- 😄 Pronouns: she
 - ⚡ Fun fact: "Norahan" is an ancient persian word, meaning "souvenir".
   
